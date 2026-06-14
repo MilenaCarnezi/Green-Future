@@ -1,0 +1,1 @@
+Auxiliado por IA.
